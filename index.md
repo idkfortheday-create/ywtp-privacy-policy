@@ -70,7 +70,7 @@ If this policy is updated, the revised version will be posted at this URL with a
 
 If you have questions about this privacy policy or YWTP's data practices, contact:
 
-**Email:** [YOUR EMAIL ADDRESS]
+**Email:** idkfortheday@gmail.com
 
 ---
 
